@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nitrohelix
-- 👀 I’m interested in robotics, video games, and 
+- 👀 I’m interested in robotics, video games, and 3D printing 
 - 🌱 I’m currently learning coding and machine learning
 - 💞️ I’m looking to collaborate on funny and ridiculous projects (Billy Bass + Alexa or useless robot projects!)
 - 📫 How to reach me: dm me here!
